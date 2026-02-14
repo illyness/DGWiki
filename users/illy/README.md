@@ -1,4 +1,4 @@
-# Illy<3 
+# 𝐼𝓁𝓁𝓎<𝟥
 ## ｡ ₊°༺❤︎༻°₊ ｡˖⁺‧₊˚ ♡ ˚₊‧⁺˖about me｡ ₊°༺❤︎༻°₊ ｡˖⁺‧₊˚ ♡ ˚₊‧⁺˖:
 
 Hello:) 
@@ -8,5 +8,5 @@ My main interests are on understanding how influence, cultural differences, ideo
 I am a global security and cybersecurity student. For work I am a close protection operative and a medic, I spend my free time yapping in DG, falling down rabbit holes and half finishing my projects.
 
 ##  ｡ ₊°༺❤︎༻°₊ ｡˖⁺‧₊˚ ♡ ˚₊‧⁺˖my work｡ ₊°༺❤︎༻°₊ ｡˖⁺‧₊˚ ♡ ˚₊‧⁺˖::
-More to come here, for now enjoy this placeholder!
-;) 
+More to come here;) 
+     -`♡´-
